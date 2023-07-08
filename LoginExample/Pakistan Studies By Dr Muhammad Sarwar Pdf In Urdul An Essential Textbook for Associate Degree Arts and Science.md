@@ -1,0 +1,17 @@
+# A Review of Pakistan Studies by Dr. Muhammad Sarwar
+ 
+Pakistan Studies is a subject that covers the history, culture, geography, politics and ideology of Pakistan. It is taught in various educational institutions across the country and abroad. One of the most popular and comprehensive books on this subject is Pakistan Studies by Dr. Muhammad Sarwar, a renowned scholar and professor of Pakistan Studies at Iqra University, Karachi.
+ 
+This book is divided into eight chapters, each covering a different aspect of Pakistan Studies. The first chapter deals with the relation between Islam and Pakistan, and how the Islamic faith inspired the creation of a separate homeland for the Muslims of South Asia. The second chapter explains the concept of ideology, Islamic ideology, and the two-nation theory that formed the basis of the Pakistan movement. The third chapter describes the establishment of Muslim society in the subcontinent, and how it evolved over time. The fourth chapter discusses the major revolutionary movements that challenged the British rule in India, such as the War of Independence of 1857, the Khilafat movement, and the Non-Cooperation movement. The fifth chapter narrates the establishment of British rule in India, and how it affected the political, economic, social and cultural aspects of life in the subcontinent. The sixth chapter highlights the geographical importance, unique position and administrative division of Pakistan, and how it influences its foreign policy and national security. The seventh chapter focuses on the Aligarh movement and its significance for the development of Muslim education, culture and nationalism. The eighth chapter explores the culture of Pakistan, its diversity, richness and uniqueness.
+ 
+**Download File ❤ [https://t.co/iGJDoaNZM0](https://t.co/iGJDoaNZM0)**
+
+
+ 
+The book is written in a simple and lucid style, with ample references to authentic sources. It provides a balanced and objective view of the various issues and events that shaped the history and identity of Pakistan. It also includes maps, diagrams, tables and pictures to enhance the understanding of the readers. The book is suitable for students of BA, BSc, BS and other undergraduate programs, as well as for general readers who want to learn more about Pakistan Studies.
+ 
+Pakistan Studies by Dr. Muhammad Sarwar is available in PDF format in Urdu language from various online platforms. It can be downloaded for free or purchased at a reasonable price from reputable publishers such as Ilmi Ketab Khana[^1^], Daira Noor ul Quran[^2^] or Course Hero[^3^]. It is one of the best books on Pakistan Studies that can help you gain a deeper insight into the past, present and future of Pakistan.
+  
+In this article, we have reviewed the book Pakistan Studies by Dr. Muhammad Sarwar, which covers the various aspects of Pakistan Studies in a comprehensive and objective manner. The book is a valuable resource for students and teachers of Pakistan Studies, as well as for anyone who wants to learn more about the history, culture, ideology and geography of Pakistan. The book is available in PDF format in Urdu language from various online platforms, and can be easily accessed and downloaded. We hope that this article has helped you understand the main features and benefits of this book, and has encouraged you to read it and gain more knowledge about Pakistan Studies.
+ 8cf37b1e13
+ 
